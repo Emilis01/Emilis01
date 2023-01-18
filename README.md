@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Emilis Dovidauskas
-- 🌱 I’m currently learning VGTU KTFm-22
+- 🌱 I’m currently study in VGTU university KTFm-22
