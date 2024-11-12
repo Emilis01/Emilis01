@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Emilis Dovidauskas
-- 🌱 I’m currently study in VGTU university KTFm-22
+- 🌱 I’m currently studying in VILNIUS TECH university, computer engineering course, group KTFm-23
